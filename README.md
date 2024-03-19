@@ -1,1 +1,1 @@
-This is my personal website I thath icoprates my experces and my own personal taste
+This is my personal website I where incorporate my experiences and my own personal taste
